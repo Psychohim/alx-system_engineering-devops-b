@@ -1,1 +1,1 @@
-whhat is the meaning of life
+Task 0. Where am I?
